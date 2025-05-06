@@ -50,8 +50,8 @@ road-accident-eda/
 
 If you have any questions or suggestions, feel free to reach out:  
 **Akash Nikam**  
-📧 your.email@example.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/yourprofile)  
+📧 akashnikam803@gmail.com  
+🔗 [LinkedIn](www.linkedin.com/in/akash-nikam-58565019b)  
 
 ---
 
